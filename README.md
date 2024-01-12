@@ -1,1 +1,1 @@
-## Attempting to create things which provide value or solve problems. :flag_puerto_rico: 
+## Attempting to create things which provide value or solve problems. :us: 🇵🇷
