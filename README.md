@@ -1,1 +1,1 @@
-### https://www.supplementai.io/ 
+## [Supplement AI](https://www.supplementai.io/)
